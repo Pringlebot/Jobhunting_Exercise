@@ -1,2 +1,1 @@
-# Jobhunting_Exercise
-This is a Jobhunting Exercise by Paul, Elena and Alica
+https://www.stepstone.de/stellenangebote--Data-Analyst-m-f-d-job-at-PAUL-Tech-AG-in-Berlin-BERLIN-10178-Berlin-DE-Marketplace-Hub--12213905-inline.html\?rltr\=20_20_25_seorl_m_0_0_0_0_0_0this is readme file
